@@ -1,0 +1,6 @@
+![rw-book-cover](https://readwise-assets.s3.amazonaws.com/static/images/article4.6bc1851654a0.png)
+
+## Highlights
+- issolving into consciousness isn’t a word-play game or a mental idea. You can’t simply say, “Oh, well, I’m already consciousness, cool. Great. I’m done.” This is one of those ways where the ego tries to “win” at spirituality, but in our hearts, we always know. ([View Highlight](https://read.readwise.io/read/01grbp38yzggcpf0ywew1tmepc))
+- Sitting in silent awareness helps to reveal the truth of consciousness. All the ideas, upset emotions, wounds, and so forth took space. They covered up your inner spaciousness, which is just the tip of the iceberg of consciousness. It’s like all the boxes and junk in your living room have been removed, and now you are feeling so much better. It’s still your living room, but you’ve got so much more room to stretch out and enjoy life. ([View Highlight](https://read.readwise.io/read/01grbpb27ygdskkh0w7v4qcmme))
+- some people believe that dissolving in pure consciousness means that they’ll be nothing but a smiling pile of goo or something, but as I said, all we’re doing is no longer denying what we are. ([View Highlight](https://read.readwise.io/read/01grbpd4vtt0gwmyxrf435df2e))

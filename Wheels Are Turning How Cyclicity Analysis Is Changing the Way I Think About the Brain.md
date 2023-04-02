@@ -1,0 +1,16 @@
+![rw-book-cover](https://readwise-assets.s3.amazonaws.com/static/images/article4.6bc1851654a0.png)
+
+## Highlights
+- the brain is brimming with activity everywhere, all the time. Even in the absence of any experimental task, there are dynamic fluctuations in metabolism all over the brain. Loads of research now supports the idea that these fluctuations are not just random noise, but rather that they carry information predictive of behavior and cognition. ([View Highlight](https://instapaper.com/read/1414985715/16494794))
+- the conventional view is that networks are comprised of groups of modules, which are used to carry out specific types of tasks. The alternative, emerging view suggests that certain areas are correlated in time due to the phase and direction of propagating information ([View Highlight](https://instapaper.com/read/1414985715/16494857))
+- rather than networks appearing to be isolated into distinct modules, correlations between areas seem to drop-off slowly in space. Further, the drop-off of correlation strength seems to follow a functional hierarchy. ([View Highlight](https://instapaper.com/read/1414985715/16494892))
+- functional brain networks could be thought of in terms of the direction and timing of flow, rather than as combinations of specialized modules ([View Highlight](https://instapaper.com/read/1414985715/16494897))
+- advanced meditators often describe a point where the core exercise of meditation, maintaining attention on the present and not mind-wandering, becomes effortless rather than effortful ([View Highlight](https://instapaper.com/read/1414985715/16494914))
+![rw-book-cover](https://readwise-assets.s3.amazonaws.com/static/images/article4.6bc1851654a0.png)
+
+## Highlights
+- the brain is brimming with activity everywhere, all the time. Even in the absence of any experimental task, there are dynamic fluctuations in metabolism all over the brain. Loads of research now supports the idea that these fluctuations are not just random noise, but rather that they carry information predictive of behavior and cognition. ([View Highlight](https://instapaper.com/read/1414985715/16494794))
+- the conventional view is that networks are comprised of groups of modules, which are used to carry out specific types of tasks. The alternative, emerging view suggests that certain areas are correlated in time due to the phase and direction of propagating information ([View Highlight](https://instapaper.com/read/1414985715/16494857))
+- rather than networks appearing to be isolated into distinct modules, correlations between areas seem to drop-off slowly in space. Further, the drop-off of correlation strength seems to follow a functional hierarchy. ([View Highlight](https://instapaper.com/read/1414985715/16494892))
+- functional brain networks could be thought of in terms of the direction and timing of flow, rather than as combinations of specialized modules ([View Highlight](https://instapaper.com/read/1414985715/16494897))
+- advanced meditators often describe a point where the core exercise of meditation, maintaining attention on the present and not mind-wandering, becomes effortless rather than effortful ([View Highlight](https://instapaper.com/read/1414985715/16494914))

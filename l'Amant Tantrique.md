@@ -1,0 +1,95 @@
+![rw-book-cover](https://m.media-amazon.com/images/I/71qgaEIVYjL._SY160.jpg)
+
+## Highlights
+- Heureusement, cette frustration se transforme rapidement en plaisir, dès que l’on prend conscience que ce temps d’attente n’est pas un pis allé, mais déjà le vrai plaisir. Il suffit simplement de se relâcher, de n’attendre rien, de savourer l’instant présent, la caresse qui se situe là maintenant, la peau que l’on touche, le regard que l’on croise, le souffle que l’on respire. A ce moment là, la tension intérieure se relâche et un espace se dégage. En lâchant l’intention de l’orgasme, en ne cherchant donc plus la satisfaction immédiate (la nôtre ou celle de notre partenaire), nous commençons vraiment à entrer en relation avec elle, à être dans la danse de la séduction et de la vie, emporté par le plaisir des sens … ([Location 880](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=880))
+    - Note: 
+- Le désir est alors vécu comme un manque, une pulsion correspondant à un vide que l’on cherche à combler. Dans  ce cas, on ne vit pas dans le moment présent, mais dans le futur, dans cet objet que l’on cherche à prendre, dans cet état futur que l’on voudrait atteindre. Mais si l’on met de la conscience sur cette envie, qu’on la lâche pour se concentrer sur ce qui se passe maintenant, sur l’état que l’on vit en ce moment, on s’ouvre à l’autre aspect du désir qui est déjà plaisir, et même félicité. Il suffit d’un simple changement d’attitude qui peut se produire en un simple déclic. Intérieurement, c’est comme si quelque chose lâchait. On sent comme une détente dans le crâne, la nuque … et en même temps cette envie disparaît pour laisser la place à ce Désir qui est déjà félicité. ([Location 902](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=902))
+    - Note: 
+- espace extatique : il était dans le ravissement de la présence à soi et à l’autre, dans le bonheur de l’instant présent, dans le délice de la relation sensuelle. Sa frustration disparut en un éclair et il se retrouva plongé dans la félicité, le corps parcouru d’ondes d’énergies qui n’avaient pu se développer lorsque tout son être était tendu vers une attente, lorsqu’il cherchait à atteindre un autre état. ([Location 917](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=917))
+    - Note: 
+- Or le plaisir extatique n'est pas un plaisir d'objet, mais un plaisir lié à l'union de deux êtres qui, au travers de cette union, arrivent à une certaine transcendance, à un état de communion physique, affective et spirituelle. ([Location 925](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=925))
+    - Note: 
+- Je cherchais à « bien faire », alors qu’il s’agissait simplement « d’être » cette caresse, d’être tout entier dans les mains, d’être totalement dans la conscience de cet instant. De laisser aller l’intuition du corps, sans réfléchir, sans juger, en restant totalement dans l’instant présent, ([Location 944](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=944))
+    - Note: 
+- divine. Les rituels nous aident à quitter notre mode habituel de pensée, pour nous faire entrer de plain pied dans une autre conscience, dans un espace plus prégnant, plus vibrant que le monde habituel. Les rituels dessinent et créent un espace sacré. ([Location 993](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=993))
+    - Note: 
+- Le Royaume de Dieu se situe dans l’éternité car il est en fait dans l’instant présent qui est hors temps. Le passé n’est plus, l’avenir pas encore, et le présent un point sans épaisseur qui, s’il est vécu en présence, nous permet d’entrer dans une autre dimension. ([Location 1017](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1017))
+    - Note: 
+- plus on se connaît, plus le fait d’enter dans un espace sacré par le salut présente d’intérêt, car il nous fait sortir du quotidien et nous place ici et maintenant dans le renouveau de chaque instant. ([Location 1029](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1029))
+    - Note: 
+- Il y a donc lieu de l’honorer une première fois comme représentante de Shakti, et une deuxième fois comme le Graal, comme la coupe qui va recevoir l’union. ([Location 1040](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1040))
+    - Note: 
+- Mais il n’y a aucune méthode pour être en présence, aucune technique ne peut donner de la présence à un homme. La présence se nourrit de l’instant présent, de l’innocence du cœur et de l’âme, de la nouveauté, de l’écoute du corps de l’autre et du sien, de l’immédiateté. ([Location 1079](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1079))
+    - Note: 
+- La souffrance a besoin du temps : elle ne peut survivre dans le présent ». ([Location 1086](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1086))
+    - Note: 
+- L’homme devient canal, qui permet à la femme de recevoir l’énergie cosmique puis de la transmuter et de la redonner à l’homme, sous la forme d’une beauté qui touche directement le cœur de l’homme : ([Location 1100](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1100))
+    - Note: 
+## New highlights added September 17, 2022 at 7:54 PM
+- pour l’homme est de passer du faire à l’être, de l’objectif au laisser faire, tout en restant présent et ouvert. ([Location 1233](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1233))
+    - Note: 
+![rw-book-cover](https://m.media-amazon.com/images/I/71qgaEIVYjL._SY160.jpg)
+
+## Highlights
+- Heureusement, cette frustration se transforme rapidement en plaisir, dès que l’on prend conscience que ce temps d’attente n’est pas un pis allé, mais déjà le vrai plaisir. Il suffit simplement de se relâcher, de n’attendre rien, de savourer l’instant présent, la caresse qui se situe là maintenant, la peau que l’on touche, le regard que l’on croise, le souffle que l’on respire. A ce moment là, la tension intérieure se relâche et un espace se dégage. En lâchant l’intention de l’orgasme, en ne cherchant donc plus la satisfaction immédiate (la nôtre ou celle de notre partenaire), nous commençons vraiment à entrer en relation avec elle, à être dans la danse de la séduction et de la vie, emporté par le plaisir des sens … ([Location 880](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=880))
+    - Note: 
+- Le désir est alors vécu comme un manque, une pulsion correspondant à un vide que l’on cherche à combler. Dans  ce cas, on ne vit pas dans le moment présent, mais dans le futur, dans cet objet que l’on cherche à prendre, dans cet état futur que l’on voudrait atteindre. Mais si l’on met de la conscience sur cette envie, qu’on la lâche pour se concentrer sur ce qui se passe maintenant, sur l’état que l’on vit en ce moment, on s’ouvre à l’autre aspect du désir qui est déjà plaisir, et même félicité. Il suffit d’un simple changement d’attitude qui peut se produire en un simple déclic. Intérieurement, c’est comme si quelque chose lâchait. On sent comme une détente dans le crâne, la nuque … et en même temps cette envie disparaît pour laisser la place à ce Désir qui est déjà félicité. ([Location 902](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=902))
+    - Note: 
+- espace extatique : il était dans le ravissement de la présence à soi et à l’autre, dans le bonheur de l’instant présent, dans le délice de la relation sensuelle. Sa frustration disparut en un éclair et il se retrouva plongé dans la félicité, le corps parcouru d’ondes d’énergies qui n’avaient pu se développer lorsque tout son être était tendu vers une attente, lorsqu’il cherchait à atteindre un autre état. ([Location 917](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=917))
+    - Note: 
+- Or le plaisir extatique n'est pas un plaisir d'objet, mais un plaisir lié à l'union de deux êtres qui, au travers de cette union, arrivent à une certaine transcendance, à un état de communion physique, affective et spirituelle. ([Location 925](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=925))
+    - Note: 
+- Je cherchais à « bien faire », alors qu’il s’agissait simplement « d’être » cette caresse, d’être tout entier dans les mains, d’être totalement dans la conscience de cet instant. De laisser aller l’intuition du corps, sans réfléchir, sans juger, en restant totalement dans l’instant présent, ([Location 944](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=944))
+    - Note: 
+- divine. Les rituels nous aident à quitter notre mode habituel de pensée, pour nous faire entrer de plain pied dans une autre conscience, dans un espace plus prégnant, plus vibrant que le monde habituel. Les rituels dessinent et créent un espace sacré. ([Location 993](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=993))
+    - Note: 
+- Le Royaume de Dieu se situe dans l’éternité car il est en fait dans l’instant présent qui est hors temps. Le passé n’est plus, l’avenir pas encore, et le présent un point sans épaisseur qui, s’il est vécu en présence, nous permet d’entrer dans une autre dimension. ([Location 1017](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1017))
+    - Note: 
+- plus on se connaît, plus le fait d’enter dans un espace sacré par le salut présente d’intérêt, car il nous fait sortir du quotidien et nous place ici et maintenant dans le renouveau de chaque instant. ([Location 1029](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1029))
+    - Note: 
+- Il y a donc lieu de l’honorer une première fois comme représentante de Shakti, et une deuxième fois comme le Graal, comme la coupe qui va recevoir l’union. ([Location 1040](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1040))
+    - Note: 
+- Mais il n’y a aucune méthode pour être en présence, aucune technique ne peut donner de la présence à un homme. La présence se nourrit de l’instant présent, de l’innocence du cœur et de l’âme, de la nouveauté, de l’écoute du corps de l’autre et du sien, de l’immédiateté. ([Location 1079](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1079))
+    - Note: 
+- La souffrance a besoin du temps : elle ne peut survivre dans le présent ». ([Location 1086](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1086))
+    - Note: 
+- L’homme devient canal, qui permet à la femme de recevoir l’énergie cosmique puis de la transmuter et de la redonner à l’homme, sous la forme d’une beauté qui touche directement le cœur de l’homme : ([Location 1100](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1100))
+    - Note: 
+- pour l’homme est de passer du faire à l’être, de l’objectif au laisser faire, tout en restant présent et ouvert. ([Location 1233](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1233))
+    - Note: 
+- pratiquement tout le corps, hormis les zones génitales, la vue et les mains, est yin ! Et dans un second temps même les zones génitales et la vue peuvent aussi devenir yin, c’est-à-dire réceptives et non prenantes. ([Location 1270](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1270))
+    - Note: 
+- Or l’extase ne peut apparaître que si le corps devient yin, alimenté en puissance par le yang. ([Location 1272](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1272))
+    - Note: 
+- Pour l'homme, et plus particulièrement l'homme yang, ce chemin est assez difficile car il faut dépasser un certain nombre de peurs et surtout de pré-conceptions sur ce qu'est un homme et ce qu'il doit faire dans la relation avec la femme. Il faut aussi, pour la femme, dépasser le statut d'allumeuse, rôle qui lui est assigné facilement par l'homme s'il ne peut pas aller jusqu'à la satisfaction de son désir, comme si la femme, devait nécessairement répondre à ce désir, une fois celui-ci déclenché chez l'homme. ([Location 1291](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1291))
+    - Note: 
+- Parfois simplement en se regardant, en étant vraiment dans le regard de l’autre, sans rien faire, on peut avoir l’impression de faire l’amour avec l’autre. On ressent comme un petit choc électrique dans la poitrine lorsque le cœur s’ouvre, et parfois on ressent aussi un frémissement dans son sexe. Pas encore une érection, mais juste une légère vibration, un très léger gonflement du vajra qui produit une sensation agréable de puissance. ([Location 1341](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1341))
+    - Note: 
+- Le regard nous ouvre d'abord à l'autre, mais il nous ouvre aussi à quelque chose de plus profond, de plus pénétrant. Le regard est l'accès magique au divin.  Le regard c'est la présence, la communion, l'ici et maintenant partagé. Regarder l'autre profondément dans les yeux, c'est lui dire « Mon amour, dans ton regard je vois ce qui est au delà des mots, je me baigne dans ton âme, et je t'ouvre mon cœur, je t'ouvre ([Location 1344](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1344))
+    - Note: 
+- mon espace intime pour que tu viennes m'y rejoindre. Dans cet espace, toi et moi ne faisons qu'un. Les opposés se rejoignent et s'unissent. Dans ton visage je vois le divin, et je remercie Dieu de t'avoir créée et que nous soyons ici, dans cet instant éternel ». Le regard est peut être ce qui est le plus impliquant dans une relation amoureuse: c'est peut être pour cela qu'on l'évite si souvent, car ainsi nous ouvrons notre être à l'autre. ([Location 1348](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1348))
+    - Note: 
+- Le contact avec l’autre ne sert pas réellement à diffuser l’énergie sexuelle, mais plutôt à la transformer, à la transmuter en énergie spirituelle. Ce contact, qui passe d’abord par le regard et le souffle et dont nous avons déjà parlé est l’un des moyens puissants et habiles pour se connecter à une autre dimension. Ce contact démarre par le regard, la fenêtre de l’âme, le lieu où l’on peut voir et se connecter à la lumière intérieure de l’autre. Si l’on est suffisamment proche, on peut mêler les souffles, pratique que je trouve personnellement à la fois extrêmement érotique, sensuelle et spirituelle. Enfin, on peut relier les cœurs. Cela se fait souvent naturellement : pour un homme lorsque l’énergie sexuelle monte, son cœur s’ouvre naturellement. ([Location 1384](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1384))
+    - Note: 
+- La beauté rayonnante de la femme est la porte du cœur de l’homme, comme la présence puissante et accueillante de l’homme est la porte du sexe de la femme. ([Location 1409](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1409))
+    - Note: 
+- mais on dit dans le tantra que l’énergie de l’homme va du sexe au cœur, et celle de la femme du cœur au sexe. ([Location 1433](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1433))
+    - Note: 
+- l’homme, la relation sexuelle n’implique pas une relation amoureuse, et inversement, que pour la femme, une relation de cœur n’implique pas une relation sexuelle. C’est d’ailleurs, dit-on, le malentendu primordial entre les sexes. Nous ne désirons pas initialement la même chose. Les hommes veulent coucher avec les femmes et les femmes désirent savoir à qui elles ont affaire et ne veulent s’ouvrir qu’à un homme de cœur. ([Location 1434](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1434))
+    - Note: 
+- L’homme devient alors plein d’amour pour la femme, et la femme pleine de désir pour l’homme. Lorsque le circuit est bouclé, lorsque les énergies montent, le désir de la femme peut encore être plus fort que celui de l’homme, de même que l’amour de l’homme peut être encore plus puissant que celui de la femme. Comme si cette ouverture induite par l’autre provoquait une explosion de désir ou de sentiments trop longuement contenue. Alors, les désirs et les sentiments se nourrissent mutuellement en une boucle vertueuse passant par le sexe et le cœur, le sexe de l’homme nourrissant celui de la femme, le cœur de la femme nourrissant celui de l’homme. ([Location 1457](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1457))
+    - Note: 
+- La magie de l’alliance du sexe et du cœur fera le reste en transformant cette énergie yang qui désire posséder et prendre en énergie d’amour, en danse de célébration de l’Eros divin, en Union Sacrée. ([Location 1591](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1591))
+    - Note: 
+- L’ego et le mental[13] tentent généralement de s’en emparer et de récupérer ces expériences pour eux-mêmes, comme si l’obtention de ces états dépendait d’eux. Ils cherchent aussi à les contrôler pour obtenir systématiquement certains effets agréables. Malheureusement, le mental et l’ego ne peuvent pas faire de telles expériences, car il est nécessaire de s’abandonner et de ne rien chercher à contrôler, pas même avoir le désir de vivre de telles expériences. ([Location 1609](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1609))
+    - Note: 
+- l’autre. La ([Location 1630](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1630))
+    - Note: 
+- geste est lent plus il est perçu en intensité. Donc soyons mélomanes, soyons artistes, soyons créatifs, soyons des magiciens de l’amour ! ([Location 1631](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1631))
+    - Note: 
+- Le divin c’est l’union du masculin et du féminin, au sein du féminin » [TriVin ([Location 1640](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1640))
+    - Note: 
+- Et d’une manière plus générale, l’union, le fait d’être avec, d’être en lien, c’est encore du féminin. Mais que savons nous, nous les hommes, du féminin ? ([Location 1642](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1642))
+    - Note: 
+- la femme nous reçoit, nous accueille au plus profond d’elle-même ... ([Location 1653](https://readwise.io/to_kindle?action=open&asin=B07T7X2MGW&location=1653))
+    - Note: 

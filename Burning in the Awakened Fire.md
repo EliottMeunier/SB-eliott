@@ -1,0 +1,4 @@
+![rw-book-cover](https://readwise-assets.s3.amazonaws.com/static/images/article3.5c705a01b476.png)
+
+## Highlights
+- For example, someone wants to find a job they love, but their ego beliefs limit them to only working in technology as a computer engineer. Again and again, that’s the only area they look in, and none of those jobs ever feels right. If this person has a calling to be a diplomat or a mediator, their ego may have a fear of being in situations of conflict that blocks out the possibility of a career in mediation. This fear is a wall in the prison cell, and while God is trying to drag this person out of the cell and through the fear, the person clutches on. They want a comfortable job, but comfort is defined by the ego ([View Highlight](https://read.readwise.io/read/01grbpxnxrc4wztq3xtcp0frvp))

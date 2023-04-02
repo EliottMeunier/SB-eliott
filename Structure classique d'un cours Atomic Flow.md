@@ -1,0 +1,84 @@
+Projet : [[Atomic Flow]]
+***
+
+La structure d'un cours est la suivante : 
+- 10 minutes d'échauffement 
+	- On commence toujours soit de Shavasana, Balasana ou Samasthiti
+	- On prend quelques respirations conscientes, on pose la conscience 
+	- On fait une légère impro sur une musique très douce ou sans musique, en restant connecté avec la respiration. 
+	- Des exemples 
+		- On fait parcourir ses mains sur son corps (collées au corps) et on se concentre sur la sensation
+		- On marche super lentement avec pleine concentration sur axe, respiration pied
+		- On est sur le sol, on fait du mouvement en se concentrant sur le contact du sol 
+		- On prend le sol comme si on était dans du sable, on est concentrés sur nos pieds 
+			- Pareil avec nos mais et pieds au sol (la saveur du pied)
+		- On fait rouler fémurs humérus 
+		- On joue avec les rayons du soleil levant sur son corps, la sensation
+		- On joue debout avec un bounce et une rotation qui naturellement attire du mouvement
+		- On doit toujours garder les 2 mains au sol entièrement 
+		- 
+- 30 minutes exercices 
+	- Expliquer un concept théorique et le ressentir dans le corps (passer d'un niveau de Panna au suivant)
+	- Donc 3 parties
+		- Explication
+		- Ressentir dans du yoga
+		- Ressentir dans du mouvement libre 
+	- Exemples 
+		- Arbre 
+			- Sève
+			- Racines
+			- Champignons
+			- Photosynthèse
+			- Fleurs
+			- Fruits
+		- Le corps
+			- Anatomie x1000
+			- Énergies subtiles
+			- Nous sommes ce que nous mangeons littéralement 
+		- Des phrases à expliquer 
+			- Exemple : Le déséquilibre amène l'équilibre
+		- S'inspirer d'objects 
+			- Principe de l'inertie en voiture
+			- Principe des fondations
+			- Principe des ballons qui se remplissent avec des souffleurs et se dégonflent aussi tôt (pour la jambe de terre)
+			- [Site Unreachable](https://www.youtube.com/watch?v=_owPRdbaMdY) (pour comment on investit un mouvement, l'un donne ses graines au suivant)
+			- ![[IMG_3381.jpg]]Image des tableaux, on ne voit rien, on ne peut pas danser quand notre esprit est agité (tableau de droite), alors que quand il est calme, des choses nous viennent. 
+			- 
+	- Garder notre conscience dessus pendant du yoga (créer un vinyasa flow)
+	- Partir en mode plus libre en gardant la même conscience
+- 10 minutes saveur de flow
+	- Initier à partir de cela 
+	- ![[Screenshot 2023-02-15 at 19.21.30.png]]
+	- Exemples 
+		- Émotions 
+			- Colère
+			- Errance
+			- Loquèle 
+			- Tristesse 
+			- Curiosité infantile 
+			- Peur
+			- Etc.
+			- ![[Pasted image 20230215192221.png]]
+		- Situations
+			- La dernière fois que...
+		- Images de textures
+			- Comme du coton
+			- Comme si on était dans du chewn gum
+			- Comme si on avait de la mousse (bulles de savon) tout autour 
+			- Comme si on était dans du miel
+		- Contraintes
+			- Les 2 pieds joints
+			- Une jambe toujours en l'air
+			- En sautant 
+			- Toujours sur demi-pointes
+			- Durée de mouvements longssss courts longsss courts 
+			- Poids ressenti très lourd, très léger 
+		- Entre les danseurs
+			- Rejet / volonté d'envelopper 
+			- Communion et amour des 2 côtés
+			- Volonté d'aimer / Peur de l'engagement 
+- 10 minutes flow libre
+	- Préparer 3-4-5 musiques et les mettre 
+	- **Il faut absolument jouer une histoire, régler ses comptes, s'imaginer dans une scène de film.**
+- 10 minutes cool down shavassana
+	- Rester 10 minutes en méditation 

@@ -1,0 +1,5 @@
+![rw-book-cover](https://readwise-assets.s3.amazonaws.com/static/images/article3.5c705a01b476.png)
+
+## Highlights
+- Awakening can make you intensely committed to the spiritual path, but not to a particular spiritual tradition. For those of us who truly have embraced the awakening, there really is this strong aspiration to embrace the wholeness of it and to not let a speck of darkness remain. It’s a powerful inward commitment, although to people around you it may look like you can’t settle on anything. But as I’ve mentioned on this blog before, internal success doesn’t look the same as external success. So do not worry if your work with a Buddhist meditation group is finished in three weeks. It may be time for two months going to a Roman Catholic church.
+  You aren’t marrying a religion on this path. You’re marrying yourself. And you’re marrying God. After that, everything else is simply a stick or a leaf floating past on the river of your life. ([View Highlight](https://read.readwise.io/read/01grbqzrba2cd2ptayvyb81xb8))
