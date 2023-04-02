@@ -1,0 +1,1 @@
+C'est la théorie des systèmes, une manière de voir les évènements en systèmes, un ensemble de sous-systèmes et de relations avec l'environnement qui s'imbriquent dans un système complexe. On essaye d'adapoter une approche hollistique. 

@@ -1,0 +1,8 @@
+MOC : [[SES]] - [[ÉCONOMIE]]
+Date : 2021-09-08
+Auteur : [[Eureka]]
+Source : [[Tout sur l'économie]]
+***
+
+## Les obligations
+Pour conclure, les obligations sont des contrats de prêt découpés en morceaux, ce qui permet à de multiples investisseurs de mettre en commun leurs ressources pour financer un unique emprunt. Les entreprises et les États sont capables d'émettre des obligations et le taux d'intérêt qu'ils obtiennent, appelé coupon, est directement corrélé au risque de non-remboursement de ces émetteurs. Plus les investisseurs ont confiance, plus le taux d'intérêt négocié au moment de l'émission a tendance à être bas. Une fois les obligations émises, la confiance des investisseurs dans le remboursement futur de l'emprunteur se lit dans la valeur d'échange de l'obligation. Plus celle-ci descend en dessous du seuil de 100 %, plus la confiance des investisseurs se détériore et inversement. L'estimation du risque de non-remboursement passe par une analyse « crédit » qui, même si elle est plus standardisée et cadrée qu'une analyse « equity », reste très arbitraire et relève énormément du « guesstimate ». Les agences de notation - chargées de donner une note au risque de non-remboursement des émetteurs qui le souhaitent (et qui payent pour ce service) - dont les deux plus importantes sont les entreprises américaines Moody's et S&P, sont les plus influentes des marchés financiers en ce qui concerne les analyses « crédit ».

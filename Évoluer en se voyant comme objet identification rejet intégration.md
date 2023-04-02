@@ -1,0 +1,10 @@
+Auteur : [[Ken Wilber]]
+MOC :  [[PHILOSOPHIE]] - [[SPIRITUALITÉ]] 
+Source : [[Integral Meditation]]
+Date : 2022-03-15
+***
+
+## Évoluer en se voyant comme objet identification rejet intégration
+- Notice that in each of those cases, the basic self-sense starts out identified with the particular stage. So at archaic stage 1, the self is identified with the simple sensorimotor or physiological dimension. That is its subject, its self. It can’t see this stage as an object; it sees the world through this stage as a subject. It can’t look at it, it’s looking through it. But as the next stage emerges, the magical-impulsive stage, the self lets go of its exclusive identity with the previous archaic stage, and switches its self, its subject, its identity, to this new stage, this magical-impulsive stage. So now the self can see its previous stage as an object—the new self or new subject can see the old subject (the archaic stage) as an object. So the subject of the previous stage has become the object of the new subject of this stage. ([Location 858](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=858))
+- “the self of one stage becomes the tool of the next”—a subjective identity becomes an objective tool, something that can be seen and used in awareness. ([Location 870](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=870))
+- this process is the actual way that each stage of evolution becomes more conscious, more open, more inclusive, freer and fuller, more embracing, more whole, more evolved. By dis-identifying with a lower, narrower, more restricted self, seeing it as an object, and simultaneously shifting identity to a new, higher, more inclusive, more conscious, more embracing self, then to just that degree we open ourselves to higher and higher, wider and wider, deeper and deeper stages of evolution, of consciousness development, of expanding identity. ([Location 872](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=872))

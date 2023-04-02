@@ -1,0 +1,10 @@
+Auteur : [[Ken Wilber]]
+MOC :  [[PHILOSOPHIE]] - [[SPIRITUALITÉ]] 
+Source : [[Integral Meditation]]
+Date : 2022-03-15
+***
+
+## Ressenti vs conclusion objective et méditation pour s'en sortir 
+- That is your own experience or reaction; you are not accusing the other person of judgmentalism as an absolute fact, or blaming them with an objective “it” statement; you are simply expressing your “I” experience, which you own as your feeling, and you communicate it to your partner instead of calling him or her names. Clearly, “I” is distinct from “it.” “In my experience you seem X” is entirely different from “You are X.” ([Location 2617](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=2617))
+- If one is right, the other is wrong—and they both think they’re right. They’ve confused their “I” and “it” perspectives (they’ve confused these two major quadrants). Whenever that happens, there is almost always a conflict in the “we” space as the two “I’s” clash over their versions of the truth, or each one’s “it,” both thinking they have the right version—the objectively correct “it” version. But actually, they are each just stating their own “I” preference, choice, or taste. ([Location 2624](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=2624))
+- So be mindful of this “we.” Start with your own “I,” and do several minutes of mindfulness on this “I” (this might flip you into your “I-I” or Witness, but that’s fine). Then shift into an awareness of this “we.” Notice that you don’t directly control it, not the way you control your own body. This “we,” indeed, has a life of its own. Every time the two of you come together, the thicker this “we” becomes, getting richer and richer with history, shared events, shared concerns, shared solutions—and several ongoing conflicts as you both try and get your “I” spaces aligned. ([Location 2803](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=2803))

@@ -1,0 +1,17 @@
+Auteur : [[Iyengar]]
+MOC : [[YOGA]] - [[SPIRITUALITÉ]]
+Source : [[Light on Yoga]]
+Project : [[Atomic Flow]]
+Date : 202302011516
+***
+
+## La libération ultime implique un renoncement de ses désirs
+- To realise this not only constant practice is demanded but also renunciation. As regards renunciation, the question arises as to what one should renounce. The yogi does not renounce the world, for that would mean renouncing the Creator. The yogi renounces all that takes him away from the Lord. **He renounces his own desires, knowing that all inspiration and right action come from the Lord.** He renounces those who oppose the work of the Lord, those who spread demonic ideas and who merely talk of moral values but do not practise them. ([Location 451](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=451))
+- the great commandments transcending creed, country, age and time. They are: ahimsā (non-violence), satya (truth), asteya (non-stealing), brahmacharya (continence) and aparigraha (non-coveting). ([Location 463](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=463))
+- Men take to violence to protect their own interests – their own bodies, their loved ones, their property or dignity. ([Location 474](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=474))
+- Violence arises out of fear, weakness, ignorance or restlessness. ([Location 476](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=476))
+- The yogi believes that every creature has as much right to live as he has. He believes that he is born to help others and he looks upon creation with eyes of love. ([Location 479](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=479))
+- For a wrong done by others, men demand justice; while for that done by themselves they plead mercy and forgiveness. **The yogi on the other hand, believes that for a wrong done by himself, there should be justice, while for that done by another there should be forgiveness.** #citation He knows and teaches others how to live. Always striving to perfect himself, he shows them by his love and compassion how to improve themselves. ([Location 482](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=482))
+- **When the mind bears malice towards none, it is filled with charity towards all. He who has learnt to control his tongue has attained self-control in a great measure. When such a person speaks he will be heard with respect and attention. His words will be remembered, for they will be good and true.** ([Location 509](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=509)) #citation
+- **The yogi reduces his physical needs to the minimum, believing that if he gathers things he does not really need, he is a thief.** #citation  While other men crave for wealth, power, fame or enjoyment, the yogi has one craving and that is to adore the Lord. **Freedom from craving enables one to ward off great temptations**. **Craving muddies the stream of tranquillity.** It makes men base and vile and cripples them. He who obeys the commandment Thou shalt not steal, becomes a trusted repository of all treasures. ([Location 517](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=517))
+- Just as one should not take things one does not really need, so one should not hoard or collect things one does not require immediately. ([Location 542](https://readwise.io/to_kindle?action=open&asin=B09WK1DZ1M&location=542))

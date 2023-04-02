@@ -1,0 +1,11 @@
+Auteur : [[Sadhguru]]
+MOC : [[YOGA]] - [[SPIRITUALITÉ]]
+Source : [[Inner Engineering]]
+Date : 202302021119
+***
+
+## L'alimentation pour être réceptif au Kosmos
+- If you eat raw meat, it takes between seventy to seventy-two hours to pass through your system; cooked meat takes fifty to fifty-two hours; cooked vegetables twenty-four to thirty hours; uncooked vegetables twelve to fifteen hours; fruits one and a half to three hours. ([Location 1681](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=1681))
+- There is much emphasis laid nowadays on eating protein. It is important to understand that only three percent of our body is composed of protein and excess protein consumption can cause cancer. Meat runs high in protein. A very small portion of the meat that one consumes can fulfill the human protein requirement. The remaining portion, which travels very slowly through the alimentary canal, leads to a variety of problems such as excessive bacterial activity, enhanced sleep quota, increased inertia levels in the body, and decreased cellular regeneration. All of this, in turn, manifests as a drop in one’s sensitivity of perception. It is in this context that meat has been regarded as spiritually unsupportive, because the spiritual process is essentially about enhancing one’s perception beyond the limitations of the physical. ([Location 1699](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=1699))
+- **It is important not to turn into a food freak. Food should never become an all-consuming affair. Every creature on the planet knows what to eat and what not to. What is the human problem then? The human problem is not enough attention, but too much information.** ([Location 1717](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=1717)) #citation
+- If you observe the natural cycle of the body, you will find that there is something called a mandala. A mandala is a cycle of forty to forty-eight days that the human system goes through. In every cycle, there will be three days on which your body does not need food. ([Location 1752](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=1752))

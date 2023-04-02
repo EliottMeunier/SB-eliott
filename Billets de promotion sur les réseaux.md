@@ -1,0 +1,13 @@
+[[YOUTUBE]] [[Formation percer sur Youtube]] [[audience]] [[Business plan Youtube]]
+
+Billets manifestes : 
+1. Voilà pourquoi j'ai créé une chaine : j'en ai assez de ...
+2. Je voulais les aider à...
+3. Ensemble, nous arriverons à faire advenir un monde où...
+
+Des billes teasing : 
+1. En travaillant sur tel sujet, j'ai fait une belle découverte
+2. Elle va vous permettre de...
+3. Elle repose sur 3 piliers/2 étapes/4 techniques etc.
+4. Je l'ai appelée (nom)
+5. Et ça se passe ici : (lien)

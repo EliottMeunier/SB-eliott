@@ -1,0 +1,1 @@
+Sociologue au XXème siècle, il a créé la théorie de la société, il a été très prolifique grâce à son système [[ZETTELKASTEN]]

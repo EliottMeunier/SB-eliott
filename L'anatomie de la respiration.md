@@ -1,0 +1,18 @@
+Auteur : [[Leslie Kaminoff]]
+MOC : [[YOGA]] - [[ANATOMIE]]
+Source : [[Yoga Anatomy]]
+Date : 202302021322
+***
+
+## L'anatomie de la respiration
+- Our abdominal cavity changes shape like a flexible, fluid-filled structure such as a water balloon. When you squeeze one end of a water balloon, the other end bulges (figure 6.6). That is because water is noncompressible. ([Location 2234](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2234))
+- In contrast to our abdominal cavity, our thoracic cavity changes both shape and volume; it behaves as a flexible gas-filled container, similar to an accordion bellows. When you squeeze an accordion, you create a reduction in the volume of the bellows, and air is forced out. When you pull the bellows open, its volume increases and air is pulled in ([Location 2242](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2242))
+- Let’s now imagine **our thoracic and abdominal cavities as an accordion stacked on top of a water balloon**. This image gives a sense of the relationship of the two cavities in breathing; movement in one will necessarily result in movement in the other. ([Location 2252](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2252))
+- **Volume and pressure are inversely related; when volume increases, pressure decreases, and when volume decreases, pressure increases.** Because air always flows toward areas of lower pressure, increasing the volume inside your thoracic cavity will decrease pressure and cause air to flow into it. This is an inhalation. **It is important to note that despite how it feels when you inhale, you do not actually pull air into your body. On the contrary, air is pushed into your body by the sea of atmospheric pressure** that always surrounds you. This means that the actual force that moves air into your lungs is outside of your body. The energy you expend in breathing produces a shape change that lowers the pressure in your chest cavity and permits the air to be pushed into your body by the weight of the planet’s atmosphere. In other words, *you create the space, and the universe fills it.* ([Location 2260](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2260))
+- Breathing, the process of taking air into and expelling it from our lungs, is caused by a three-dimensional shape change in our thoracic and abdominal cavities. ([Location 2300](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2300))
+
+### Zoom sur le diaphragme
+![[IMG_0602.PNG]]
+- Our diaphragm is the principal muscle that causes three-dimensional shape change in our thoracic and abdominal cavities. ([Location 2316](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2316))
+- The lower edges of our diaphragm’s fibers attach at four distinct regions7 (see figure 6.12): Sternal—The back of the xiphoid process at the bottom of our sternum Costal—The inner costal cartilage surfaces of ribs 6 through 10 Arcuate—The arcuate ligament8 that runs from the 10th rib’s cartilage to our lumbar spine, attaching along the way to the floating ribs (11 and 12) and the transverse process and body of L1 Lumbar—The crura (Latin for legs) at the front of our lumbar spine, L3 on right and L2 on left ([Location 2345](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2345))
+- unlike other muscles, our diaphragm is associated with our thoracic and abdominal organs via their surrounding connective tissues. This is what is meant by the term organic relations. ([Location 2372](https://readwise.io/to_kindle?action=open&asin=B0998616FH&location=2372))

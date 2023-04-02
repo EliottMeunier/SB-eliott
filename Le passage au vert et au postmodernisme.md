@@ -1,0 +1,9 @@
+Auteur : [[Ken Wilber]]
+MOC :  [[PHILOSOPHIE]] - [[SPIRITUALITÉ]] 
+Source : [[Integral Meditation]]
+Date : 2022-03-15
+***
+
+## Le passage au vert et au postmodernisme
+- The “post” in “postmodernism” means that this next higher level, like all successively higher levels, brought a new and higher perspective into being: where orange rational modernity introduced a 3rd-person perspective, this new stage—known variously as pluralistic, postmodern, relativistic, sensitive, individualistic, multicultural (and given the color green)—came with the emergence of a 4th-person perspective: the capacity to reflect on, and criticize, 3rd-person perspectives, including science, leading to a multitude of different or pluralistic views. (And “pluralism”—the belief in many different but equally important approaches to reality—can be taken to its limit, where it becomes “relativism”: the belief that there are only multiple approaches, with absolutely no universal or globally unified approaches, no “Big Pictures” that are true for everybody, just local, culturally constructed beliefs. ([Location 1145](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=1145))
+- postmodernism became especially identified with aggressive critiques of any “isms” or “Big Pictures” of any type—critiques of capitalism, of Marxism, of fundamentalism, racism, sexism, patriarchalism, ageism, speciesism, and so on—and this was the basis of everything from the civil rights movement to handicapped parking spaces to hate crime legislation.) ([Location 1160](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=1160))

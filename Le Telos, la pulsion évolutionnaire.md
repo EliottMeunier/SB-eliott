@@ -1,0 +1,13 @@
+MOC : [[PHILOSOPHIE]] - [[DÉVELOPPEMENT PERSONNEL]] - [[ÉCOLOGIE]]
+Author: [[Ken Wilber]]
+Date : aout 2021
+Source : [[3 GARDEN/Notes/Une Brève Histoire De Tout]]
+***
+
+## Le Telos, la pulsion évolutionnaire
+Il existe une pulsion évolutionnaire, qui encourage une émergence créatrice, tout n'est pas lié au hasard comme le pense [[Nassim Taleb]]. La science occidentale a commencé à incorporer ce facteur. 
+
+- L'évolution est un processus furieusement autotranscendant : elle a la capacité tout à fait stupéfiante d'aller au-delà de ce qui existait avant. Alors l'évolution est en partie un processus de transcendance qui incorpore ce qui existait auparavant et qui y ajoute ensuite des composantes incroyablement originales. ([Location 712](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=712))
+- Vous pouvez démonter une montre et analyser ses parties, mais elles ne vous diront pas l'heure qu'il est. C'est la même chose avec n'importe quel holon. La total-ité du holon ne se trouve dans aucune de ses parties, et cela règle son cas à une certaine frénésie réductrice qui a infesté la science occidentale pratiquement dès sa naissance. En particulier depuis l'avènement des sciences systémiques, la prise de conscience du fait que nous vivons dans un univers d'émergence créative a commencé à faire son chemin dans l'esprit des scientifiques. ([Location 739](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=739))
+- En d'autres mots, quelque chose d'autre que le hasard pousse l'univers. Le hasard était le salut des scientifiques traditionnels. Le hasard était leur dieu. Le hasard pouvait tout expliquer. Le hasard - et un temps infini - pouvait produire l'univers. Mais ils ne disposent pas d'un temps infini, alors leur dieu les a laissés tomber misérablement. Ce dieu-là est mort. Le hasard n'est pas ce qui explique l'univers; en fait, l'univers travaille de toutes ses forces pour venir à bout du hasard. Le hasard est précisément ce dont triomphe la pulsion autotranscendante du Kosmos. ([Location 775](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=775))
+- Le Kosmos est doté d'une pulsion formatrice, d'un telos. Il a une direction. Il va quelque part. Son fondement est la Vacuité; sa pulsion est l'organisation de la Forme en holons de plus en plus cohérents. Vacuité, créativité, holons. ([Location 781](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=781))

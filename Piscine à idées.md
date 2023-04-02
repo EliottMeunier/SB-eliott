@@ -1,0 +1,1 @@
+Concept de [[Pascal Robby]] qui signifie stockage à idées. 

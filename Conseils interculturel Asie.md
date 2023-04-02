@@ -1,0 +1,12 @@
+MOC : [[PHILOSOPHIE]] - [[DÉVELOPPEMENT PERSONNEL]] - [[INTERCULTUREL]] 
+Date : 2022-11-16
+Source : [[Bruno Marion]]
+***
+
+Au niveau culturel de [[Les 3 niveaux d’Interculturel]], voici les tips pour l'Asie : 
+- soyez humble on montre sa force en ne la montrant pas (ne pas crier, se vanter etc)
+- L’importance de la relation, ça fait tout ! (On boit un verre avant de travailler ensemble)
+- l’indirect (j’ai un problème avec ma mère, je le dis à mon père)
+- il ne faut pas dire non, tous les maybe sont des non 
+- Le oui asiatique c’est comme un hein hein, ce n’est pas un commitment 
+

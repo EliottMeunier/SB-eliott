@@ -1,0 +1,9 @@
+Auteur : [[Sadhguru]]
+MOC : [[YOGA]] - [[SPIRITUALITÉ]]
+Source : [[Inner Engineering]]
+Date : 202302021119
+***
+
+## L'image de l'alignement du corps pour percevoir le kosmos
+- Until recently in India, after every storm, you had to go up to your roof and adjust your TV antenna. Only if it was angled in a certain way did the world pour into your living room. Or else, as you were watching your favorite soap opera or football match, a blizzard would suddenly appear on your screen. The body is like that antenna: if you hold it in the right position, it becomes receptive to all there is in existence. If you hold it another way, you will remain absolutely ignorant of everything beyond the five senses. ([Location 1313](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=1313))
+- The simplest thing that you can do to change the health and fundamental structure of your body is to treat the five elements with devotion and respect. Just try this. Every time you are consciously in touch with any of the elements (which you are every moment of your life), just make a conscious attempt to refer to it in terms of whatever you consider to be the ultimate or the loftiest ideal in your life, whether it is Shiva, Rama, Krishna, God, Allah (or even Marx!). You are a psychological being right now, and your mind is full of hierarchy. This process will settle the hierarchy. After some time, the word can fall away. But you instantly see the change as the number of truly conscious moments in your life increases. The air that you breathe, the food that you eat, the water that you drink, the land that you walk upon, and the very space that holds you—every one of them offers you a divine possibility. ([Location 1546](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=1546))

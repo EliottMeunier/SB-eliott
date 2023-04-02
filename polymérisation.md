@@ -1,0 +1,1 @@
+La polymérisation est le processus qui assemble de petites [[protéines]] pour former un [[polymère]]

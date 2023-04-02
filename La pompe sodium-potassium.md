@@ -1,0 +1,1 @@
+Elle hydrolyse de l'[[ATP adénosine triphosphate]] en présence de Na+ à l'intérieur de la membrane et elle les échange avec du K+ externe. Cette pompe utilise 70% de l'[[ATP adénosine triphosphate]] utilisée dans le cerveau.

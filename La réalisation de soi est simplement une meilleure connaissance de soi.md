@@ -1,0 +1,8 @@
+Auteur : [[Sadhguru]]
+MOC : [[YOGA]] - [[SPIRITUALITÉ]]
+Source : [[Inner Engineering]]
+Date : 202302021119
+***
+
+## La réalisation de soi est simplement une meilleure connaissance de soi 
+- What is this self-realization? you might wonder. After all, all that most people are looking for is health, well-being, wealth, love, and success. Do you really need self-realization? Let us look at this in the simplest possible way. Isn’t it true that the more you know about your computer, the better you can use it? Isn’t it true that your ability to use a device or instrument is directly proportional to your knowledge about it? Isn’t it true that someone with a high level of dexterity and expertise can use even a simple instrument in a seemingly magical way? Have you seen some people riding on a piece of plastic they call a surfboard, doing incredible things? Just a piece of plastic, and what amazing feats of agility and grace they can perform! **Similarly, the more profound your understanding of the human mechanism is, the more magical your life will be. In every culture, there have been a few people who performed certain actions that made others believe in miracles. All these actions that are known as miracles are just born of a more profound access to life that some have enjoyed. That access, as I have said time and again, is available to everyone who cares to look deeper.** ([Location 3226](https://readwise.io/to_kindle?action=open&asin=B01B0K98D8&location=3226))

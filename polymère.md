@@ -1,0 +1,1 @@
+Tissu constitué de [[protéines]] qui résulte de la [[polymérisation]]

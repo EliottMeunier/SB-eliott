@@ -1,0 +1,8 @@
+MOC : [[PHILOSOPHIE]] - [[DÉVELOPPEMENT PERSONNEL]] - [[ÉCOLOGIE]]
+Author: [[Ken Wilber]]
+Date : aout 2021
+Source : [[3 GARDEN/Notes/Une Brève Histoire De Tout]]
+***
+
+## Interet est une base technologique qui ne garantit rien
+- Quel bien y a-t-il à ce que les nazis aient l'Internet ? Vous voyez le problème ? Le Net est simplement la structure sociale extérieure - le quadrant inférieur droit. Mais ce qui transite par le Net - eh bien ! ça implique la conscience, la morale et les valeurs intérieures; et ceux qui soutiennent tout simplement que le Net est une conscience globale ne se préoccupent pas, même vaguement, de tout ça. C'est la terre plate, sous sa pire forme, la plus Descendue, et peut-être la plus destructive. Le Net fait simplement partie d'une base technologique (le quadrant inférieur droit) et, en tant que tel, il est lui-même neutre par rapport à la conscience qui l'utilise. Toutes les structures du côté droit sont neutres, dépourvues de valeur. Ce que signifie la technologie informatique (et l'ère de l'information), c'est que la base technologique peut soutenir un perspectivisme mondocentrique, une conscience globale, mais elle ne la garantit d'aucune façon. Comme nous l'avons vu, les progrès cognitifs sont nécessaires mais pas suffisants pour assurer le progrès moral, et les moyens cognitifs courent habituellement loin devant la volonté de gravir effectivement cette échelle de l'expansion de la conscience. Le Net offre la possibilité, mais ne la garantit pas. ([Location 6344](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=6344))

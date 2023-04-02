@@ -1,0 +1,10 @@
+Auteur : [[Ken Wilber]]
+MOC :  [[PHILOSOPHIE]] - [[SPIRITUALITÉ]] 
+Source : [[Integral Meditation]]
+Date : 2022-03-15
+***
+
+## La définition de l'Éveil pour l'approche intégrale 
+- new and updated definition of Enlightenment that we have been using: **being one with both the highest state and the highest structure that have evolved at that time in history**. ([Location 2121](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=2121))
+- Thus, according to our second major point, with the institutionalization of a “conveyor belt,” the main tenets of any particular Tradition are set forth in the language and terms of each of the major structure-stages of spiritual Growing Up, so that somebody could start their young, childhood spiritual development with a magical presentation of their religion; then, during middle school, move to a mythic presentation; then in adolescence, a rational perspective; then—if they continue growing—in young adulthood, a pluralistic view; and finally, if growth fully matures, an integral version of their Tradition. Combined with that Tradition’s path of Waking Up, this would involve the most complete, the most inclusive, the most all-pervading spiritual involvement a human could possibly attain—the highest state and the highest structure made available to date by evolution, by Spirit-in-action—and mark the utter fulfillment of the very best and very brightest for which any sentient being might possibly hope. ([Location 2128](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=2128))
+- Essentially, what one is awakening from is the ceaseless, chaotic, incoherent thoughts and ways of framing reality that govern most human activity, generating endless states of suffering; and what one is awakening to is a pure, transparent, open, empty, clear awareness, free of incoherent and broken thoughts and frameworks. ([Location 300](https://readwise.io/to_kindle?action=open&asin=B01BMYXTU0&location=300))

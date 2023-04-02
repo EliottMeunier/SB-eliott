@@ -1,0 +1,1 @@
+1.  Doctrine d'Auguste Comte selon laquelle les sciences positives sont appelées à fonder la philosophie.

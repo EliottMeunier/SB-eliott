@@ -1,0 +1,16 @@
+MOC : [[PHILOSOPHIE]] - [[DÉVELOPPEMENT PERSONNEL]] - [[ÉCOLOGIE]]
+Author: [[Ken Wilber]]
+Date : aout 2021
+Source : [[3 GARDEN/Notes/Une Brève Histoire De Tout]]
+***
+
+## Holarchie ou hiérarchie
+Chaque partie d'une hiérarchie est un holon, ces hiérarchies sont positives si un holon ne se prend pas pour le tout et tente de dominer l'ensemble. Le nombre de niveaux dans n'importe quelle holarchie est ce qu'on appelle sa profondeur, et le nombre de holons à un niveau donné est ce qu'on appelle son étendue (plus la profondeur est grande, plus l'étendue est petite). On trouve des holarchies partout. 
+
+- Pratiquement tous les processus de croissance, de la matière à la vie et au mental, s'inscrivent dans des holarchies naturelles ou des ordres croissants de holisme ou de total-ité - des touts qui deviennent des parties de nouveaux touts. ([Location 808](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=808))
+- Vous obtenez une hiérarchie pathologique ou de domination lorsqu'un quelconque holon d'une holarchie naturelle usurpe sa position et tente de dominer l'ensemble - une cellule cancéreuse domine le corps, un dictateur fasciste domine le système social, un ego répressif domine l'organisme, et ainsi de suite. ([Location 812](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=812))
+- Nier la hiérarchie est en soi une hiérarchie. Vous ne pouvez pas échapper à ces structures emboîtées parce que le Kosmos est précisément composé de holons et que les holons existent holarchiquement. À la place, nous voulons départager les holarchies normales des holarchies pathologiques ou de domination. ([Location 841](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=841))
+- Et si, dans quelque holarchie que ce soit, un holon particulier usurpe sa position - s'il veut n'être qu'un tout et refuse d'être aussi une partie - cette holarchie naturelle ou normale dégénère en une holarchie pathologique ou de domination, ce qui, quel que soit le nom qu'on lui donne, est une maladie, ([Location 852](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=852))
+- Une molécule transcende et inclut des atomes. Transcende, au sens où elle a certaines propriétés émergentes ou novatrices ou créatives qui ne sont pas simplement la somme de ses composantes. C'est tout l'objet de la théorie des systèmes et du holisme en général : de nouveaux niveaux d'organisation apparaissent et ils ne peuvent être réduits dans tous leurs aspects à leurs dimensions subordonnées - ils les transcendent. Mais ils les incluent aussi, parce que les holons subordonnés sont néanmoins des composantes du nouveau holon. Donc, transcende et inclut. ([Location 874](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=874))
+- Le nombre de niveaux dans n'importe quelle holarchie est ce qu'on appelle sa profondeur, et le nombre de holons à un niveau donné est ce qu'on appelle son étendue. ([Location 925](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=925))
+- Alors une plus grande profondeur a toujours moins d'étendue que la profondeur précédente. Le holon individuel a de plus en plus de profondeur, mais le collectif devient de plus en plus petit. ([Location 949](https://readwise.io/to_kindle?action=open&asin=B07MQ681WQ&location=949))
